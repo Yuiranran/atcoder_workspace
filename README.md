@@ -1,3 +1,3 @@
 https://atcoder.jp/users/yuiram
 
-見かけたらアドバイスどうぞ
+見かけたらアドバイスください
